@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @ryoji-araki
-- 👀 I’m interested in League Of Legends
-- 🌱 I’m currently learning how to manage mid lane role
-- 💞️ I’m looking to collaborate on Nothing :/
-- 📫 How to reach me ... check "Ryorar" on EUW server
+- 👀 I’m interested in hikanichi
+- 🌱 I’m currently learning how to jump in mid-air irl
+- 💞️ I’m looking to collaborate on my own... Q~Q
+- 📫 How to reach me ... DM @TrueRyoB at Twitter!
 
 <!---
 ryoji-araki/ryoji-araki is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
